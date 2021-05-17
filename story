@@ -1,1 +1,1 @@
-You are at a party and drinking fruit punch. Suddenly you fall to the ground and enter a black world. There is an evil cupid running after you. Escape it to see more.
+You are at a party and drinking fruit punch. Suddenly you fall to the ground and enter a black world. There is an evil cupid running after you. Escape it to see more. Now that you have escaped 1000 metres, the obstacles are going to get more and more dangerous, be careful.
