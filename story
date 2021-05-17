@@ -1,0 +1,1 @@
+You are at a party and drinking fruit punch. Suddenly you fall to the ground and enter a black world. There is an evil cupid running after you. Escape it to see more.
